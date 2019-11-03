@@ -1,0 +1,2 @@
+# not822
+samsung
